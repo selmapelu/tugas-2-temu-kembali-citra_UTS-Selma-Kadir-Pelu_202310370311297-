@@ -1,0 +1,1 @@
+# tugas-2-temu-kembali-citra_UTS-Selma-Kadir-Pelu_202310370311297-
